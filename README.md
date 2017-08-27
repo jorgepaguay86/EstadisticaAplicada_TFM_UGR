@@ -7,4 +7,4 @@ jorge.paguay.86@gmail.com
 
 0995029690
 
-Quito-Ecuador
+Ecuador
